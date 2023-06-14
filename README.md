@@ -1,3 +1,4 @@
-I'm a writer and editor based in Brooklyn, NY. 
+Hi, I'm Edwin Smith. I'm a writer and editor based in Brooklyn.
 
-This is a 
+http://linkedin.com/in/edwinlsmith/
+
