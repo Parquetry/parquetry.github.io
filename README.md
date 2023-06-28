@@ -1,4 +1,4 @@
-Hi, I'm Edwin Smith. I'm a writer and editor based in Brooklyn.
+Hi, I'm Edwin Smith. I'm a writer and editor born in England, raised in Florida, and living in Brooklyn.
 
 http://linkedin.com/in/edwinlsmith/
 
