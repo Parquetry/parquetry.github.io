@@ -1,6 +1,6 @@
 Hi, I'm [Edwin Smith](http://linkedin.com/in/edwinlsmith/) and welcome to my internet page. 
 
-I'm a copywriter born in England, raised in Florida, and planted in New York City.
+I'm a copywriter, journalist, and translator born in England, raised in Florida, and planted in New York City.
 
 I have a bachelor's in English and History from the University of Florida.
 
