@@ -1,6 +1,6 @@
 My first creative experiences began at the intersection of digital subcultures and IRL moments. Growing up in the hinterlands of the Miami metropolitan area and 
-being relegated to private schools, gifted classes, and magnet programs entailed a degree of separation from life/culture/urban society that meant I had to fashion
-a cultural identity from online reports, communities, and relationships It meant I was often dreaming of art exhibitions and sports events, and racing down to Ft.
+being relegated to private schools, gifted classes, and magnet programs entailed a degree of estrangement from life/culture/urban society that meant I had to fashion
+my own cultural identity from online reports, communities, and relationships. It meant I was often dreaming of art exhibitions and sports events, and racing down to Ft.
 Lauderdale and Miami whenever I was impelled. If you look at my house from Google Maps, you can see I was on the edge of the Everglades. My neighborhood was dominated
 by the HOWA board, and I lived in Florida (it’s famously flat), and the skatepark, I visited every week, it was devoid of people. Not once did I see anyone there. 
 So skating was also out of the question too. I took to a revolution of the mind, whatever that means. I’m still working that out. I turned 
