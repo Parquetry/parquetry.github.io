@@ -1,4 +1,4 @@
-Hi, I'm [Edwin Smith](http://linkedin.com/in/edwinlsmith/) and welcome to my internet page.                   [About Me](https://github.com/Parquetry/parquetry.github.io/blob/main/aboutme.md)
+Hi, I'm [Edwin Smith](http://linkedin.com/in/edwinlsmith/) and welcome to my internet page. &nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp[About Me](https://github.com/Parquetry/parquetry.github.io/blob/main/aboutme.md)
 
 I'm a copywriter, journalist, and translator born in England, raised in Florida, and planted in New York City.
 
